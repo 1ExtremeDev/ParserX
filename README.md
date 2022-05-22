@@ -1,1 +1,1 @@
-Lol fuck you
+SEO automated tool
